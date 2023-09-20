@@ -6,9 +6,14 @@ Thanks for clicking, welcome to your personalized sparknotes page, where you can
 _have a crouton_
 
 
-pitch your tent
 
-
-here we go: 
 ## Summary - 
-Tent 
+Suburan new jerseyy town can't have a city of tents? grow up. 
+
+## Characters - 
+
+
+# Chapter 1: History 
+" Ocean Grove’s tent colony dates back to 1870 when there were 200 tents for every house. Today, there are 114 tent structures nestled around the Great Auditorium " inflation goes up, fertility goes down, so do tent populations. 
+death, taxes, tent city 
+
