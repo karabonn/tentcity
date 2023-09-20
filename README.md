@@ -23,4 +23,7 @@ For the sake of the cheese pizza in the room.
 # Chapter 3: #RushTentCity 
 Like any tent city, there is a rigorus interview process through an organization that has a webiste with such poor UX I can't even bear to attempt to navigate through it any more I have no more info here sorry 
 
+# Chapter 3.5 the entire town is relegious (?) 
+Allegedlly God's square mile
+
 # Chapter 4: Notes from the Peanut Gallery 
