@@ -13,7 +13,7 @@ Suburan new jersey town can't have a city of tents? grow up.
 ## Characters - 
 ### Townspeople, Methodists 
 ### [Napolitano, Rob](lol.jpeg) 
-_click <--_
+_click^_
 ### Liz 
 
 # Chapter 1: History 
@@ -46,5 +46,5 @@ Here are the rules :
 
 ### Final thoughts
 Page is subject to typos, my 'a' key doesn't work at the moment and i don't have spell check on here. 
-I'm available for further tutoring on this subject at 609-346-1745 if you need help! 
+I'm available for further tutoring on tent city - or any subject - at 609-346-1745 if you need help.
 
