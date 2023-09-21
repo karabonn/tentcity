@@ -44,5 +44,6 @@ Here are the rules :
 - ' First time I got laid was in one of these tents and that was one of the greatest weeks of my life ' - Robert D, who has also left a google review of a cemetery in philly (with tombstone photo) 
 
 ### Final thoughts
-Page is subject to typos, my 'a' key doesn't work at the moment
+Page is subject to typos, my 'a' key doesn't work at the moment and i don't have spell check on here. 
 I'm available for further tutoring on this subject at 609-346-1745 if you need help! 
+
