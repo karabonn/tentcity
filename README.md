@@ -8,22 +8,30 @@ _have a crouton_
 
 
 ## Summary - 
-Suburan new jerseyy town can't have a city of tents? grow up. 
+Suburan new jersey town can't have a city of tents? grow up. 
 
 ## Characters - 
-
+Townspeople, Methodists 
+Napolitano, Rob 
+Liz 
 
 # Chapter 1: History 
-" Ocean Grove’s tent colony dates back to 1870 when there were 200 tents for every house. Today, there are 114 tent structures nestled around the Great Auditorium " inflation goes up, fertility goes down, so do tent populations. 
+Back in 1870 when i used to walk uphill both ways to school barefoot in the snow there were 200 tents. Now there are 114 around the Great Auditorium [ the barn ] -- an auditorium so great, it can allegelly hold up to 7000 people with aucustics rumored to be better than carnegie hall but the jury is still out on that one. 
+
 death, taxes, tent city 
 
-# Chapter 2: The Fundamentals 
-For the sake of the cheese pizza in the room. 
+# Chapter 2: The Fundamentals - for the sake of the cheese-pizza-ers in the room. 
+600 sq ft @ 4k for 3 months 
+Most have wifi 
+Dry town but you are allowed to have wine in a cup 
+Burning money - every tent is rented, not owned, with high-rollers investing (can we even call it that?) over $80k in rennovations to property they can't technically increase the value of because they are still renting it from [ still unclear ] 
 
 # Chapter 3: #RushTentCity 
-Like any tent city, there is a rigorus interview process through an organization that has a webiste with such poor UX I can't even bear to attempt to navigate through it any more I have no more info here sorry 
+Like any other tent city, there is an intensive interview process through an organization that has a webiste with such poor UX, I can't even continue to attempt to navigate through it, I have no more info here sorry 
+'as long as they abide by the rules and stay active in religious instruction, they will be welcomed back each year. And if one of their sons is wants to be involved with the community, he will likely skip the waiting list and be granted a “generational hand-off”'
 
 # Chapter 3.5 the entire town is relegious (?) 
-Allegedlly God's square mile
+Allegedlly been God's square mile
 
 # Chapter 4: Notes from the Peanut Gallery 
+The barn next door can hold 7000 people 
