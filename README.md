@@ -12,7 +12,7 @@ Suburan new jersey town can't have a city of tents? grow up.
 
 ## Characters - 
 ### Townspeople, Methodists 
-### Napolitano, Rob 
+### [Napolitano, Rob](lol.jpeg) 
 ### Liz 
 
 # Chapter 1: History 
