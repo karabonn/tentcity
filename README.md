@@ -11,20 +11,19 @@ _have a crouton_
 Suburan new jersey town can't have a city of tents? grow up. 
 
 ## Characters - 
-Townspeople, Methodists 
-Napolitano, Rob 
-Liz 
+### Townspeople, Methodists 
+### Napolitano, Rob 
+### Liz 
 
 # Chapter 1: History 
-Back in 1870 when i used to walk uphill both ways to school barefoot in the snow there were 200 tents. Now there are 114 around the Great Auditorium [ the barn ] -- an auditorium so great, it can allegelly hold up to 7000 people with aucustics rumored to be better than carnegie hall but the jury is still out on that one. 
+Back in 1870 there were 200 tents but in the nature of there are 114 around the Great Auditorium [ the barn ] -- an auditorium so great, it can allegelly hold up to 7000 people with aucustics rumored to be better than carnegie hall but the jury is still out on that one. 
 
-death, taxes, tent city 
 
 # Chapter 2: The Fundamentals - for the sake of the cheese-pizza-ers in the room. 
 600 sq ft @ 4k for 3 months 
 Most have wifi 
 Dry town but you are allowed to have wine in a cup 
-Burning money - every tent is rented, not owned, with high-rollers investing (can we even call it that?) over $80k in rennovations to property they can't technically increase the value of because they are still renting it from [ still unclear ] 
+Burning money - every tent is rented, not owned, with high-rollers investing (can we even call it that?) over $80k in rennovations to property they can't technically increase the value of because they are renting it from [ still unclear ] 
 
 # Chapter 3: #RushTentCity 
 Like any other tent city, there is an intensive interview process through an organization that has a webiste with such poor UX, I can't even continue to attempt to navigate through it, I have no more info here sorry 
@@ -35,3 +34,6 @@ Allegedlly been God's square mile
 
 # Chapter 4: Notes from the Peanut Gallery 
 The barn next door can hold 7000 people 
+
+# Questions 
+Who owns this land? This is a Margate Bridge situation 
