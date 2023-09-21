@@ -16,7 +16,7 @@ Suburan new jersey town can't have a city of tents? grow up.
 ### Liz 
 
 # Chapter 1: History 
-Back in 1870 there were 200 tents, but in the nature of * insert something clever, I'm blanking, this is such a cop-out * there are 114 around the Great Auditorium -- an auditorium so great, it can allegelly hold up to 7000 people with aucoustics rumored to be better than carnegie hall but the jury is still out on that one. 
+Back in 1870 there were 200 tents, but in the nature of * insert something clever, I'm blanking, this is such a cop-out * there are 114 around the Great Auditorium -- an auditorium so great, it can allegely hold up to 7000 people with aucoustics rumored to be better than carnegie hall but the jury is still out on that one. 
 
 
 # Chapter 2: The Fundamentals - for the sake of the cheese-pizza-ers in the room. 
