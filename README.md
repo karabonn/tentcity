@@ -26,22 +26,22 @@ Back in 1870 there were 200 tents, but in the nature of * insert something cleve
 - Did you smell that? It's burning $ - every tent is rented, not owned
 
 # Chapter 3: #RushTentCity 
-Like any other tent city, there is an intensive interview process to join - this is done through an organization that has a webiste with such poor UX, I can't even continue to attempt to navigate through it, I have no more info here sorry 
-10 year+ waitlist to rent - but if you are a long-term renter and your family particpates in relegious acitivies (camp leader, beach badge checker), you can Disney-world-fast-pass it a few years up the line, called a generational hand-off. If you are good at dancing to foo fighters screamo in the sand that also counts towards your mojo score. etc etc the list goes on. 
+- Like any other tent city, there is an intensive interview process to join - this is done through an organization that has a webiste with such poor UX, I can't even continue to attempt to navigate through it, I have no more info here sorry 
+- 10 year+ waitlist to rent - but if you are a long-term renter and your family particpates in relegious acitivies (camp leader, beach badge checker), you can Disney-world-fast-pass it a few years up the line, called a generational hand-off. If you are good at dancing to foo fighters screamo in the sand that also counts towards your mojo score. etc etc the list goes on. 
 
 
 
 # Chapter 4: As they say : Beg for permission, ask for forgiveness
-Here are the rules 
-Rule #1 is 'must abide by the rules' 
-Rule #2 stay active in relegious instruction 
-Rule #3 fuck around and find out 
-Rule #4 dream big and make it real
+Here are the rules :
+- Rule #1 'must abide by the rules' 
+- Rule #2 stay active in relegious instruction 
+- Rule #3 fuck around and find out 
+- Rule #4 dream big and make it real
 
 # Chapter 4: Notes from the Peanut Gallery - real people, on google 
-' Awesome. The coolest place to be. ' - Nancy L. 
-' Interesting history. Every tent is so cute. ' - Victoria O
-' First time I got laid was in one of these tents and that was one of the greatest weeks of my life ' - Robert D, who has also left a google review of a cemetery in philly (with tombstone photo) 
+- ' Awesome. The coolest place to be. ' - Nancy L. 
+- ' Interesting history. Every tent is so cute. ' - Victoria O
+- ' First time I got laid was in one of these tents and that was one of the greatest weeks of my life ' - Robert D, who has also left a google review of a cemetery in philly (with tombstone photo) 
 
 # Questions 
 Who owns this land? Who is it rented from
