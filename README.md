@@ -38,8 +38,10 @@ Rule #2 stay active in relegious instruction
 Rule #3 fuck around and find out 
 Rule #4 dream big and make it real
 
-# Chapter 4: Notes from the Peanut Gallery 
-The barn next door can hold 7000 people 
+# Chapter 4: Notes from the Peanut Gallery - real people, on google 
+' Awesome. The coolest place to be. ' - Nancy L. 
+' Interesting history. Every tent is so cute. ' - Victoria O
+' First time I got laid was in one of these tents and that was one of the greatest weeks of my life ' - Robert D, who has also left a google review of a cemetery in philly (with tombstone photo) 
 
 # Questions 
 Who owns this land? Who is it rented from
