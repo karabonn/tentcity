@@ -20,10 +20,10 @@ Back in 1870 there were 200 tents, but in the nature of * insert something cleve
 
 
 # Chapter 2: The Fundamentals - for the sake of the cheese-pizza-ers in the room. 
-600 sq ft @ 6k for 3 months 
-Most have wifi 
-Dry town but you are allowed to have wine in a cup 
-Did you smell that? It's burning $ - every tent is rented, not owned
+- 600 sq ft @ 6k for 3 months 
+- Most have wifi 
+- Dry town but you are allowed to have wine in a cup 
+- Did you smell that? It's burning $ - every tent is rented, not owned
 
 # Chapter 3: #RushTentCity 
 Like any other tent city, there is an intensive interview process to join - this is done through an organization that has a webiste with such poor UX, I can't even continue to attempt to navigate through it, I have no more info here sorry 
